@@ -13,7 +13,7 @@ before i get started, i just want to brag in favour of stranger things season fi
 
 # STRAWPAGE(S)!! 
 
-- https://hunterssobassed.straw.page)
+- https://hunterssobassed.straw.page (this took me ages)
 - https://yaaayquestions.straw.page (answering gimmicks one!!)
 
  [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31u3stiobril2k26hbegbae2ej6m&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false)](https://github.com/kittinan/spotify-github-profile) 
@@ -21,7 +21,6 @@ before i get started, i just want to brag in favour of stranger things season fi
 
 # other random things i wanna add
 
-- my fictionkins are: mituna, will byers and caliborn.
 - DON'T BE AFRIAD TO INT WITH ME! i need more pony town friends! D:
 
 - C+H is FULLY allowed..unless i have dniuf in my name !!
