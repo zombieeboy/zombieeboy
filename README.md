@@ -1,16 +1,35 @@
-## Hi there 👋
+![6](https://files.catbox.moe/ue04jm.png)
+![](https://komarev.com/ghpvc/?username=srupslurp&color=grey)
 
-<!--
-**zombieeboy/zombieeboy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+༘˚⋆𐙚｡⋆𖦹.✧˚
 
-Here are some ideas to get you started:
+# welcome to my gh!!!
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+before i get started, i just want to brag in favour of stranger things season five..heh i have the same bday as will !! im literally him.
+
+- i am 80% of the time starring at my laptop screen on pony town and the other 20% either offtab or away from my keyboard..so w2i at all times or i wont see your messages bc im way to lazy to backread mssgs
+
+- you can find my strawpage below. it provides more infomation about me/fandoms and other things and all that stuff.,.,., but my pronouns page has some of the info i have in my strawpage in it..!!
+
+
+# STRAWPAGE(S)!! 
+
+- https://srupslurp.straw.page
+- https://yaaayquestions.straw.page (answering gimmicks one!!)
+
+ [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31u3stiobril2k26hbegbae2ej6m&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false)](https://github.com/kittinan/spotify-github-profile) 
+
+
+
+# other random thing i wanna add
+
+- DON'T BE AFRIAD TO INT WITH ME! i need more pony town friends! D:
+
+- C+H is FULLY allowed..unless i have dniuf in my name !!
+
+- you can find me in the homestuck area 80% of the time. other times i'm somewhere random on the map.
+
+  - main intrests at the moment: STRANGER THINGS !!!, homestuck, ranfren, Law of Talos and Lapfox
+
+![6](https://files.catbox.moe/ue04jm.png)
+
