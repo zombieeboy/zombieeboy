@@ -13,7 +13,7 @@ before i get started, i just want to brag in favour of stranger things season fi
 
 # STRAWPAGE(S)!! 
 
-- https://hunterssobassed.straw.page (this took me ages)
+- https://hunterssobassed.straw.page (this took me ages. don't click it if it is night time for you. its VERY white. basically permanent light mode.)
 - https://yaaayquestions.straw.page (answering gimmicks one!!)
 
  [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31u3stiobril2k26hbegbae2ej6m&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false)](https://github.com/kittinan/spotify-github-profile) 
