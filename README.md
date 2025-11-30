@@ -15,6 +15,7 @@ before i get started, i just want to brag in favour of stranger things season fi
 
 - https://hunterssobassed.straw.page (this took me ages. don't click it if it is night time for you. its VERY white. basically permanent light mode.)
 - https://yaaayquestions.straw.page (answering gimmicks one!!)
+- https://srupslurp.straw.page (THIS IS MY LESS CHAOTIC STRAWPAGE. SLIGHTLY OUTDATED. FIRST ONE IS WAY NEWER.)
 
  <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
