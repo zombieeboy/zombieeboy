@@ -1,7 +1,7 @@
 ![6](https://files.catbox.moe/ue04jm.png)
 ![](https://komarev.com/ghpvc/?username=srupslurp&color=grey)
 
-# ▄︻デ══━一 𖦏
+
 
 
  <p align="center">
