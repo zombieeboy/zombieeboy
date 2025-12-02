@@ -10,7 +10,7 @@
 
    <p align="center"> links: https://hunterssobassed.straw.page 
    <p align="center"> https://pronouns.cc/@TruckStopFerret09 
-   <p align="center"> want to see your gimmicks you send me? click on this other strawpage: https://yaaayquestions.straw.page
+   <p align="center"> https://yaaayquestions.straw.page
    
 
  <p align="center">
