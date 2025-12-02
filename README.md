@@ -14,8 +14,9 @@
    <p align="center"> https://pronouns.cc/@TruckStopFerret09 
    <p align="center"> https://yaaayquestions.straw.page
 
-   
-![download (67)](https://github.com/user-attachments/assets/428dfad2-400d-402e-b69e-c82bbb664197)
+   <p align="center">!
+![ВЫКЛАДЫВАЛА ИЛИ НТЕ_!_!!!_!_!_😿😿 (1)](https://github.com/user-attachments/assets/7f8f2e83-f443-43e9-8c12-28bac4b461d2)
+
 
 
  <p align="center">
