@@ -3,7 +3,7 @@
 ![6](https://files.catbox.moe/ue04jm.png)
 
 # " You can’t cure somebody who has nothing wrong with them. "
-![download (65)](https://github.com/user-attachments/assets/b55cce4f-ac28-4886-bf3c-cb01965bd046)
+![We Heart It](https://github.com/user-attachments/assets/cf40ad8b-7e01-4204-9eef-a8895e15625d)
 
  <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
