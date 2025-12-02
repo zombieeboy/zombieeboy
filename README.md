@@ -2,9 +2,7 @@
 
 ![6](https://files.catbox.moe/ue04jm.png)
 
-![ac @hati_ozi555 on twt](https://files.catbox.moe/xlhxd0.jpeg)
 
- ![div](https://files.catbox.moe/diyrmd.png){230:22}
 
 
 
