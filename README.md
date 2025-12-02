@@ -11,13 +11,6 @@
 </p>
 
 
-# other random things i wanna add
-
-- DON'T BE AFRIAD TO INT WITH ME! i need more pony town friends! D:
-
-- C+H is FULLY allowed..unless i have dniuf in my name !!
-
-- you can find me in the homestuck area 80% of the time. other times i'm somewhere random on the map.
 
 
 
