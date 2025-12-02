@@ -1,4 +1,4 @@
-![We Heart It](https://github.com/user-attachments/assets/a423fdb6-2b18-44ba-8226-203ab2c5f8e7)
+![ZERO DAY](https://github.com/user-attachments/assets/f0417a8d-6f4a-441c-af7e-1730f8848ac5)
 
 ![6](https://files.catbox.moe/ue04jm.png)
 ![](https://komarev.com/ghpvc/?username=srupslurp&color=grey)
