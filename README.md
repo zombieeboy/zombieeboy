@@ -15,7 +15,8 @@
    <p align="center"> https://yaaayquestions.straw.page
 
    
-<p align="center"> ![calgabriel](https://github.com/user-attachments/assets/2a3f9939-0c27-4fa8-b81f-755731cb2787)
+![download (67)](https://github.com/user-attachments/assets/428dfad2-400d-402e-b69e-c82bbb664197)
+
 
  <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
