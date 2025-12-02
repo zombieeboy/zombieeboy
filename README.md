@@ -8,7 +8,6 @@ before i get started, i just want to brag in favour of stranger things season fi
 
 - i am 80% of the time starring at my laptop screen on pony town and the other 20% either offtab or away from my keyboard..so w2i at all times or i wont see your messages bc im way to lazy to backread mssgs
 
-- you can find my strawpage below. it provides more infomation about me/fandoms and other things and all that stuff.,.,., but my pronouns page has some of the info i have in my strawpage in it..!!
 
 
 # STRAWPAGE(S)!! 
