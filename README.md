@@ -4,13 +4,6 @@
 # ▄︻デ══━一 𖦏
 
 
-
-# STRAWPAGE(S)!! 
-
-- https://hunterssobassed.straw.page (this took me ages. don't click it if it is night time for you. its VERY white. basically permanent light mode.)
-- https://yaaayquestions.straw.page (answering gimmicks one!!)
-- https://srupslurp.straw.page (THIS IS MY LESS CHAOTIC STRAWPAGE. SLIGHTLY OUTDATED. FIRST ONE IS WAY NEWER.)
-
  <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31u3stiobril2k26hbegbae2ej6m&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=737373&bar_color_cover=true">
