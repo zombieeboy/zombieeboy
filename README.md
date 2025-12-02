@@ -3,8 +3,7 @@
 ![6](https://files.catbox.moe/ue04jm.png)
 
 
-this is a work in progress.
-
+<img width="1113" height="1315" alt="IMG_8032" src="https://github.com/user-attachments/assets/5d67479f-65c7-4b4b-a396-d4b20744a2f0" />
 
 
  <p align="center">
