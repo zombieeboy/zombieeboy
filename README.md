@@ -9,10 +9,11 @@
    <p align="center"> i am NOT tcc. zero day is a movie, it didn't happen irl, the charcters are fictional. dni if your just going to harass me about zero day. just block me. 
 
    <p align="center"> links:
-    
-     <p align="center"> https://hunterssobassed.straw.page 
+  
+   <p align="center">https://hunterssobassed.straw.page
    <p align="center"> https://pronouns.cc/@TruckStopFerret09 
    <p align="center"> https://yaaayquestions.straw.page
+
    
 
  <p align="center">
