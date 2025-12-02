@@ -3,6 +3,7 @@
 ![6](https://files.catbox.moe/ue04jm.png)
 
 # " You can’t cure somebody who has nothing wrong with them. "
+![cal gabriel (1)](https://github.com/user-attachments/assets/9b0e0b6d-255a-4287-b94d-da5e8ac1e010)
 
  <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
