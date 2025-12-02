@@ -8,7 +8,7 @@
   <p align="center"> i am a cis male so yes, he/him pronouns but any others can be used in a joking matter.
    <p align="center"> i am NOT tcc. zero day is a movie, it didn't happen irl, the charcters are fictional. dni if your just going to harass me about zero day. just block me. 
 
-   <p align="center"> links: https://hunterssobassed.straw.page (scroll down on there if the strawpage is too overwhelming. i have another one linked on there that is less hurtful to your eyes.)
+   <p align="center"> links: https://hunterssobassed.straw.page 
    <p align="center"> https://pronouns.cc/@TruckStopFerret09 
    <p align="center"> want to see your gimmicks you send me? click on this other strawpage: https://yaaayquestions.straw.page
    
