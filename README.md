@@ -16,7 +16,7 @@
    <p align="center"> https://yaaayquestions.straw.page 
     
  # <p align="center"> Other thing i wanna add
-  <p align="center">  i often smoke (cannabis) so i might be VERY slow to reply or when i do obviously it gets very lazy. i do NOT mean to be dry on purpose but when you're high as balls playing a pixel pony game? yeah...fun.
+  <p align="center">  i often smoke weed (cannabis) so i might be VERY slow to reply OR when i do obviously it gets very lazy. i do NOT mean to be dry on purpose but when you're high as balls playing a pixel pony game? yeah...fun.
     
      
 
