@@ -2,7 +2,7 @@
 
 ![6](https://files.catbox.moe/ue04jm.png)
 
- <p align="center"> # " You can’t cure somebody who has nothing wrong with them. "
+# " You can’t cure somebody who has nothing wrong with them. "
 <p align="center"> ᶻ 𝗓 𐰁
  <p align="center"> hunter/ciel
   <p align="center"> i am a cis male so yes, he/him pronouns but any others can be used in a joking matter.
