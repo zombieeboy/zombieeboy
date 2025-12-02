@@ -2,8 +2,7 @@
 
 ![6](https://files.catbox.moe/ue04jm.png)
 
-
-
+" You can’t cure somebody who has nothing wrong with them. "
 
  <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
