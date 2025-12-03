@@ -13,9 +13,7 @@
     
   # <p align="center"> links:
   
-   <p align="center">https://hunterssobassed.straw.page
-   <p align="center"> https://pronouns.cc/@TruckStopFerret09 
-   <p align="center"> https://yaaayquestions.straw.page 
+ok this is a fat wip bc im REDOING my strawpage....check back later it should be done in 2 hours
     
      
 
