@@ -8,7 +8,9 @@
  <p align="center"> hunter/ciel
   <p align="center"> i am a cis male so yes, he/him pronouns 
    <p align="center"> 99% of the time im geeked tf out. literally me and my bong 4 ever. srry if i'm dry i'm prlly high as balls an too lazy to do capital lttrs.  
-  # <p align="center"> links:
+
+    
+ 
   
    <p align="center">https://hunterssobassed.straw.page
    <p align="center"> https://pronouns.cc/@TruckStopFerret09 
