@@ -1,3 +1,4 @@
+![JOHN EGBERT](https://github.com/user-attachments/assets/f28a6ba4-2f95-4c96-9a2d-887f3443db76)
 
 
 ![6](https://files.catbox.moe/ue04jm.png)
