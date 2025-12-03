@@ -4,12 +4,12 @@
 ![](https://komarev.com/ghpvc/?username=srupslurp&color=grey)
 
 # <p align="center">  " You can’t cure somebody who has nothing wrong with them. "
-<p align="center"> !ᶻ 𝗓 𐰁
+<p align="center"> ᶻ 𝗓 𐰁
  <p align="center"> hunter/ciel
   <p align="center"> i am a cis male so yes, he/him pronouns but any others can be used in a joking matter.
    <p align="center"> i am NOT tcc. zero day is a movie, it didn't happen irl, the charcters are fictional. dni if your just going to harass me about zero day. just block me. 
   
-   <p align="center"> links:
+  # <p align="center"> links:
   
    <p align="center">https://hunterssobassed.straw.page
    <p align="center"> https://pronouns.cc/@TruckStopFerret09 
