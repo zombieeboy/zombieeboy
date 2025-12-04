@@ -15,8 +15,9 @@
   
  <p align="center"> https://ghostytrickstersawesome.straw.page !!
  <p align="center">  https://colormytree.me/2025/01KBKGF13GRA6Q828ZH0VT5FJ4
+ <img src="https://external-media.spacehey.net/media/sEJeKQ7mhfEOBCQXLN3hJIlLAcizy73qx_hCGyz6fbJY=/https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/i/f09a999d-c2d0-4cf3-8670-3f9cbf736ed7/d8xo2y9-e97cc62d-2a12-4035-95ba-af1dee5e428a.gif"/>
     
-     
+  
 
 
  <p align="center">
