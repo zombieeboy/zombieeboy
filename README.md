@@ -15,9 +15,11 @@
   
  <p align="center"> https://ghostytrickstersawesome.straw.page !!
  <p align="center">  https://colormytree.me/2025/01KBKGF13GRA6Q828ZH0VT5FJ4
- <img src="https://external-media.spacehey.net/media/sEJeKQ7mhfEOBCQXLN3hJIlLAcizy73qx_hCGyz6fbJY=/https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/i/f09a999d-c2d0-4cf3-8670-3f9cbf736ed7/d8xo2y9-e97cc62d-2a12-4035-95ba-af1dee5e428a.gif"/>
-    
+ 
   
+  <img src="https://external-media.spacehey.net/media/sEJeKQ7mhfEOBCQXLN3hJIlLAcizy73qx_hCGyz6fbJY=/https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/i/f09a999d-c2d0-4cf3-8670-3f9cbf736ed7/d8xo2y9-e97cc62d-2a12-4035-95ba-af1dee5e428a.gif"/>
+    
+  <img src="https://external-media.spacehey.net/media/sG-C9a9_hox8Qj9101VsOIQ1zj2TL1-2dbfsNqRHakAg=/https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/0027cc5e-497a-48b5-9819-917ac373899e/dg5sbu2-aa9367f7-de96-48a4-bfae-1c3f9ba48ee3.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzAwMjdjYzVlLTQ5N2EtNDhiNS05ODE5LTkxN2FjMzczODk5ZVwvZGc1c2J1Mi1hYTkzNjdmNy1kZTk2LTQ4YTQtYmZhZS0xYzNmOWJhNDhlZTMuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.9oCApshZDiNnxvpMe7nbqgqWkJIPox7NLYfyZssNLec"/>
 
 
  <p align="center">
