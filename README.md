@@ -13,7 +13,7 @@
     
   # <p align="center"> links:
   
- <p align="center"> (https://ghostytrickstersawesome.straw.page)
+ <p align="center"> https://ghostytrickstersawesome.straw.page !!
     
      
 
