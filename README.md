@@ -13,7 +13,7 @@
     
   # <p align="center"> links:
   
- <p align="center"> ok this is a fat wip bc im REDOING my strawpage....check back later it should be done in 2 hours
+ <p align="center"> (https://ghostytrickstersawesome.straw.page)
     
      
 
