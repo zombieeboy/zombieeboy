@@ -9,7 +9,8 @@
  <p align="center"> hunter/ciel
   <p align="center"> i am a cis male so yes, he/him pronouns 
    <p align="center"> 99% of the time im geeked tf out. literally me and my bong 4 ever. srry if i'm dry i'm prlly high as balls an too lazy to do capital lttrs.  
-><img src="https://64.media.tumblr.com/2d2985f862cee5eab8c6eac79a77fc34/23e83896a48037ad-f3/s250x400/74b78eb4082747ff165149dc7f2a441354c4a428.gifv"/>
+
+    ><img src="https://64.media.tumblr.com/2d2985f862cee5eab8c6eac79a77fc34/23e83896a48037ad-f3/s250x400/74b78eb4082747ff165149dc7f2a441354c4a428.gifv"/>
     
   # <p align="center"> links:
   
