@@ -5,8 +5,7 @@
 ![](https://komarev.com/ghpvc/?username=srupslurp&color=grey)
 
 # <p align="center">  " You can’t cure somebody who has nothing wrong with them. "
-<p align="center"> <img src="https://64.media.tumblr.com/2d2985f862cee5eab8c6eac79a77fc34/23e83896a48037ad-f3/s250x400/74b78eb4082747ff165149dc7f2a441354c4a428.gifv"/>
-  
+<p align="center"> <img src="https://external-media.spacehey.net/media/sG-C9a9_hox8Qj9101VsOIQ1zj2TL1-2dbfsNqRHakAg=/https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/0027cc5e-497a-48b5-9819-917ac373899e/dg5sbu2-aa9367f7-de96-48a4-bfae-1c3f9ba48ee3.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzAwMjdjYzVlLTQ5N2EtNDhiNS05ODE5LTkxN2FjMzczODk5ZVwvZGc1c2J1Mi1hYTkzNjdmNy1kZTk2LTQ4YTQtYmZhZS0xYzNmOWJhNDhlZTMuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.9oCApshZDiNnxvpMe7nbqgqWkJIPox7NLYfyZssNLec"/>
 <p align="center"> ᶻ 𝗓 𐰁
  <p align="center"> hunter/ciel
   <p align="center"> i am a cis male so yes, he/him pronouns 
