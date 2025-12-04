@@ -5,7 +5,7 @@
 ![](https://komarev.com/ghpvc/?username=srupslurp&color=grey)
 
 # <p align="center">  " You can’t cure somebody who has nothing wrong with them. "
-<img src="https://64.media.tumblr.com/2d2985f862cee5eab8c6eac79a77fc34/23e83896a48037ad-f3/s250x400/74b78eb4082747ff165149dc7f2a441354c4a428.gifv"/>
+<p align="center"> <img src="https://64.media.tumblr.com/2d2985f862cee5eab8c6eac79a77fc34/23e83896a48037ad-f3/s250x400/74b78eb4082747ff165149dc7f2a441354c4a428.gifv"/>
   
 <p align="center"> ᶻ 𝗓 𐰁
  <p align="center"> hunter/ciel
