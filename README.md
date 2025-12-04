@@ -20,9 +20,7 @@
  <p align="center">  https://colormytree.me/2025/01KBKGF13GRA6Q828ZH0VT5FJ4
  
   # <p align="center">  stamps
-  <img src="https://external-media.spacehey.net/media/sEJeKQ7mhfEOBCQXLN3hJIlLAcizy73qx_hCGyz6fbJY=/https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/i/f09a999d-c2d0-4cf3-8670-3f9cbf736ed7/d8xo2y9-e97cc62d-2a12-4035-95ba-af1dee5e428a.gif"/>
-    
-  <img src="https://external-media.spacehey.net/media/sG-C9a9_hox8Qj9101VsOIQ1zj2TL1-2dbfsNqRHakAg=/https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/0027cc5e-497a-48b5-9819-917ac373899e/dg5sbu2-aa9367f7-de96-48a4-bfae-1c3f9ba48ee3.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzAwMjdjYzVlLTQ5N2EtNDhiNS05ODE5LTkxN2FjMzczODk5ZVwvZGc1c2J1Mi1hYTkzNjdmNy1kZTk2LTQ4YTQtYmZhZS0xYzNmOWJhNDhlZTMuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.9oCApshZDiNnxvpMe7nbqgqWkJIPox7NLYfyZssNLec"/>
+<p align="center"><img src="https://64.media.tumblr.com/58b0a0249b0ba657d6ae6d756000d18d/00c20e2bc5fc3342-94/s100x200/403b9ba6f0ff907f7f00954457012256f2f9019a.gifv"/>
 
 
  <p align="center">
