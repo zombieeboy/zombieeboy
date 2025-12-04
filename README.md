@@ -23,6 +23,7 @@ ok this is a fat wip bc im REDOING my strawpage....check back later it should be
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31u3stiobril2k26hbegbae2ej6m&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=737373&bar_color_cover=true">
   </a>
 </p>
+![download (17)](https://github.com/user-attachments/assets/6e2d0f99-31a8-485a-885e-5a77c58dd8e9)
 
 
 
