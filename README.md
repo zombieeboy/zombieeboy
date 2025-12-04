@@ -9,7 +9,7 @@
  <p align="center"> hunter/ciel
   <p align="center"> i am a cis male so yes, he/him pronouns 
    <p align="center"> 99% of the time im geeked tf out. literally me and my bong 4 ever. srry if i'm dry i'm prlly high as balls an too lazy to do capital lttrs.  
-
+<img src="https://external-media.spacehey.net/media/s_0gWz8N7BN5f2B-NLIzhdWtl4-Xr2_I_ZgL1w559tO4=/https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/ec9048d5-1fd4-42f1-88ff-2f628e8b4464/d8d5wyr-34b7e897-62e2-4553-8080-877abef4d284.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2VjOTA0OGQ1LTFmZDQtNDJmMS04OGZmLTJmNjI4ZThiNDQ2NFwvZDhkNXd5ci0zNGI3ZTg5Ny02MmUyLTQ1NTMtODA4MC04NzdhYmVmNGQyODQuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.mcfTmjc0a3NsqbVaO1l-UtfDUIDbIaow4LTbpKL4kYg"/>
     
   # <p align="center"> links:
   
