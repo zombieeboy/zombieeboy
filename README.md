@@ -10,6 +10,7 @@
  <p align="center"> hunter/ciel
   <p align="center"> i am a cis male so yes, he/him pronouns 
    <p align="center"> w2i at ALL times if i have afk in my name i am most likely doomscrolling on my phone or doing smth
+    <p align="center"> i like to follow people i think are cool. (like if your pony is cute/just in general)
 
  
     
