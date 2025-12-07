@@ -2,7 +2,7 @@
   <img src="https://64.media.tumblr.com/38441dd588e4ced837c56e592b179792/3c7512c789785a26-8e/s100x200/2f57b5d29bc207d791581c095196c35f51116127.gifv">
 </div>
 <div align="center">
-i looove my girlfriend, Sam ♡ whom I stole this code from ❤️
+i looove my all time favourite keith
 </div>
 <div align="center">
 · · ─ ·✶· ─ · ·
