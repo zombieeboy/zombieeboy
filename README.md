@@ -1,62 +1,36 @@
-<div align="center">
-  <img src="https://64.media.tumblr.com/38441dd588e4ced837c56e592b179792/3c7512c789785a26-8e/s100x200/2f57b5d29bc207d791581c095196c35f51116127.gifv">
-</div>
-
-<div align="center">
-i looove my all time favourite friend keith ^ω^ hi keith hi hello hi...
- 
-</div>
-<div align="center">
-· · ─ ·✶· ─ · ·
-<details>
-<summary>abt me !  </summary>
- i'm an Aries ꩜ He/Him - 
-  
-  russian / australian 🕸️ addicted to listening to music.
-
-  
-</details>
+![john egbert 💨](https://github.com/user-attachments/assets/a9085980-236c-4d63-9d85-375cd6a07f81)
 
 
-<details>
-<summary>byi ! ⛧ </summary>
-My Spelling isn't very good, sorry about that <br> 
-
-  I make Kms jokes, as well as say slurs i CAN reclaim <br>
-
-  I can, and will be annoying/embarassing to be around so let me know to tone it down and i'll stop. <br>
-
-I'm usually AFK, so please W2I! 
-
-i am a satanist, christians iwec because all of you are INSUFFERABLE.
-
-
-</details>
-<details>
-<summary>dni !  </summary>
-i do't have a dni list but here are SOME thin ice stuff:
-  
-  Viviziepop Supporters , TCOAALL, SOME regretevator fans (i'm in the fandom and so are some of my close friends so regretevator fandom iwc) <br> 
-SOME selfshippers (sorry i don't really like interacting with yall from some bad expirences with selfshippers so you guys are on VERY thin ice.) <br>
-Other than that, I hide freely/frequently
-
-</details>
-
-<details>
-<summary>interests ! ^ω^ </summary>
-Homestuck, Stranger Things, Wings of fire , Hazbin hotel (FANDOM IWEC. i only like hazbin hotel for razzle/dazzle and sir pentious), OneWheatMark, Murder drones, SouthPark, Regretevator, TADC (fandom iwec), Law of Talos, Amphibia, The owl house Haunted hotel, Furry fandom and ... Many many more (lots more mentioned in my strawpage) <br/>
-  <br/>
-I am Climber, John egbert, Mituna, Craig, Will's Number 1 fan 4eva <br/>
-my favourite homestuck ships are pepsicola, gamtav and gamkat!
-  <br/>
-</details>
-
-· · ─ ·✶· ─ · ·
-
-
-</div>
+![6](https://files.catbox.moe/ue04jm.png)
 ![](https://komarev.com/ghpvc/?username=srupslurp&color=grey)
+
+# <p align="center">  " You can’t cure somebody who has nothing wrong with them. "
+<p align="center"> <img src="https://external-media.spacehey.net/media/sG-C9a9_hox8Qj9101VsOIQ1zj2TL1-2dbfsNqRHakAg=/https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/0027cc5e-497a-48b5-9819-917ac373899e/dg5sbu2-aa9367f7-de96-48a4-bfae-1c3f9ba48ee3.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzAwMjdjYzVlLTQ5N2EtNDhiNS05ODE5LTkxN2FjMzczODk5ZVwvZGc1c2J1Mi1hYTkzNjdmNy1kZTk2LTQ4YTQtYmZhZS0xYzNmOWJhNDhlZTMuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.9oCApshZDiNnxvpMe7nbqgqWkJIPox7NLYfyZssNLec"/>
+<p align="center"> ᶻ 𝗓 𐰁
+ <p align="center"> hunter/ciel
+  <p align="center"> i am a cis male so yes, he/him pronouns 
+   <p align="center"> w2i at ALL times if i have afk in my name i am most likely doomscrolling on my phone or doing smth
+    <p align="center"> i like to follow people i think are cool. (like if your pony is cute/just in general)
+
+ 
+    
+  # <p align="center"> links:
   
-</div>
+ <p align="center"> https://ghostytrickstersawesome.straw.page !!
+ <p align="center">  https://colormytree.me/2025/01KBKGF13GRA6Q828ZH0VT5FJ4
+ 
+  # <p align="center">≽^•⩊•^≼
 
 
+ <p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31u3stiobril2k26hbegbae2ej6m&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=737373&bar_color_cover=true">
+  </a>
+</p>
+
+
+
+
+
+
+![6](https://files.catbox.moe/ue04jm.png)
