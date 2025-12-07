@@ -4,7 +4,7 @@
 
 <div align="center">
 i looove my all time favourite friend keith ^ω^ hi keith hi hello hi...
-  (https://komarev.com/ghpvc/?username=srupslurp&color=grey)
+ 
 </div>
 <div align="center">
 · · ─ ·✶· ─ · ·
@@ -55,7 +55,7 @@ my favourite homestuck ships are pepsicola, gamtav and gamkat!
 
 
 </div>
-stamp wip
+![](https://komarev.com/ghpvc/?username=srupslurp&color=grey)
   
 </div>
 
