@@ -24,18 +24,18 @@ i looove my all time favourite keith
 <summary>dni !  </summary>
 i do't have a dni list but here are SOME thin ice stuff:
   
-  Viviziepop Supporters , TCOAALL, SOME regretevator fans (i'm in the fandom and so are some of my close friends so regretevator fandom iwc <br> 
+  Viviziepop Supporters , TCOAALL, SOME regretevator fans (i'm in the fandom and so are some of my close friends so regretevator fandom iwc) <br> 
 SOME selfshippers (sorry i don't really like interacting with yall from some bad expirences with selfshippers so you guys are on VERY thin ice.) <br>
 Other than that, I hide freely/frequently
 
 </details>
 
 <details>
-<summary>interests ! •⩊• </summary>
-HSR, Roblox args, Minecraft args&Myths , Creepypastas, Hazbin hotel, FNAF, Regretevator, Pressure, Doors, Grace, Depth Spelunking, Meeleniacs, Haunted hotel, Dandys world, SEWH and ... Many many more <br/>
+<summary>interests ! ^ω^ </summary>
+Homestuck, Stranger Things, Wings of fire , OneWheatMrk, Murder drones, FSouthPark, Regretevator, TADC (fandom iwec), Law of Talos, Amphibia, The owl house Haunted hotel, Furry fandom and ... Many many more (lots more mentioned in my strawpage) <br/>
   <br/>
-I am DrRetro, Folly, Stat Angeldust, Uzi, Boggles, and Emily's Number 1 fan 4eva <br/>
-Dreamhammer, Sleepingpills/dreamkitty, Webmalice, Scag/stat,  Folly/stats Biggest shipper ever ... I love yuri!
+I am Climber, John egbert, Mituna, Craig, Will's Number 1 fan 4eva <br/>
+my favourite homestuck ships are pepsicola, gamtav and gamkat!
   <br/>
 </details>
 
