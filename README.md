@@ -1,6 +1,6 @@
 <div align="center">
 
-![Real](https://github.com/user-attachments/assets/c57c9fab-a02c-43d7-abe9-0fd199bab17f)
+![download (76)](https://github.com/user-attachments/assets/46043a69-bf05-49c1-b73a-eee7b02beb74)
 
 ![6](https://files.catbox.moe/ue04jm.png)
 ![](https://komarev.com/ghpvc/?username=srupslurp&color=grey)
