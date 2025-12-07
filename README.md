@@ -18,7 +18,6 @@ i looove my all time favourite keith
 
 
 
-
 </details>
 <details>
 <summary>dni !  </summary>
@@ -32,7 +31,7 @@ Other than that, I hide freely/frequently
 
 <details>
 <summary>interests ! ^ω^ </summary>
-Homestuck, Stranger Things, Wings of fire , OneWheatMrk, Murder drones, FSouthPark, Regretevator, TADC (fandom iwec), Law of Talos, Amphibia, The owl house Haunted hotel, Furry fandom and ... Many many more (lots more mentioned in my strawpage) <br/>
+Homestuck, Stranger Things, Wings of fire , Hazbin hotel (FANDOM IWEC. i only like hazbin hotel for razzle/dazzle and sir pentious), OneWheatMark, Murder drones, SouthPark, Regretevator, TADC (fandom iwec), Law of Talos, Amphibia, The owl house Haunted hotel, Furry fandom and ... Many many more (lots more mentioned in my strawpage) <br/>
   <br/>
 I am Climber, John egbert, Mituna, Craig, Will's Number 1 fan 4eva <br/>
 my favourite homestuck ships are pepsicola, gamtav and gamkat!
