@@ -1,8 +1,10 @@
 <div align="center">
   <img src="https://64.media.tumblr.com/38441dd588e4ced837c56e592b179792/3c7512c789785a26-8e/s100x200/2f57b5d29bc207d791581c095196c35f51116127.gifv">
 </div>
+
 <div align="center">
 i looove my all time favourite friend keith ^ω^ hi keith hi hello hi...
+  (https://komarev.com/ghpvc/?username=srupslurp&color=grey)
 </div>
 <div align="center">
 · · ─ ·✶· ─ · ·
