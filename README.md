@@ -1,5 +1,6 @@
-![john egbert 💨](https://github.com/user-attachments/assets/a9085980-236c-4d63-9d85-375cd6a07f81)
+<div align="center">
 
+[ ‎![download (75)](https://github.com/user-attachments/assets/521b8f16-be5b-4e14-9b4a-fdeb31352f11)>](https://files.catbox.moe/b1g3cq.jpg)
 
 ![6](https://files.catbox.moe/ue04jm.png)
 ![](https://komarev.com/ghpvc/?username=srupslurp&color=grey)
