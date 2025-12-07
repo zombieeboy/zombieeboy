@@ -10,7 +10,7 @@
 <div align="center"> he/him
 <div align="center"> russian/eng
 
-[strawpage](https://ghostytrickstersawesome.straw.page) 𖦹 [my tree]([https://colormytree.me/2025/01KBGHW2ZKR7B9M15FFNVF6BXD](https://colormytree.me/2025/01KBKGF13GRA6Q828ZH0VT5FJ4)) 
+[strawpage](https://ghostytrickstersawesome.straw.page)   ᯓ★   [my tree!](https://colormytree.me/2025/01KBKGF13GRA6Q828ZH0VT5FJ4)
 
 
 
