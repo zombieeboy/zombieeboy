@@ -16,12 +16,6 @@ i looove my all time favourite keith
 </details>
 
 
-<details>
-<summary>byi ! - ‸ - </summary>
-my spelling is super bad, sorry about that <br> 
-I make Kms jokes, as well as say slurs I can reclaim  <br>
-I can, and will be annoying and embarassing <br
-I'm usually AFK, so please W2I! 
 
 
 
