@@ -8,7 +8,8 @@ i looove my all time favourite keith
 · · ─ ·✶· ─ · ·
 <details>
 <summary>abt me !  </summary>
- i'm an Aries ꩜ He/Him 
+ i'm an Aries ꩜ He/Him - 
+  
   russian / australian 🕸️ addicted to listening to music.
 
   
