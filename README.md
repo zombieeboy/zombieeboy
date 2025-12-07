@@ -1,6 +1,6 @@
 <div align="center">
 
-[ ‎![download (75)](https://github.com/user-attachments/assets/521b8f16-be5b-4e14-9b4a-fdeb31352f11)>](https://files.catbox.moe/b1g3cq.jpg)
+![Do not kill yourself](https://github.com/user-attachments/assets/9534d646-e783-433f-a317-b914fdc5847a)
 
 ![6](https://files.catbox.moe/ue04jm.png)
 ![](https://komarev.com/ghpvc/?username=srupslurp&color=grey)
