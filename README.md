@@ -27,10 +27,10 @@ I'm usually AFK, so please W2I!
 
 </details>
 <details>
-<summary>dni ! ^. .^ </summary>
-basic dni criteria, pro/darkshippers, Viviziepop Supporters , TCOAALL, APH, Dteam, WSS <br> 
-Vees & Stolas fans&Defenders <br>
-Other than that, I hide freely 
+<summary>dni !  </summary>
+i do't have a dni list but here are SOME thin ice stuff, Viviziepop Supporters , TCOAALL, SOME regretevator fans (i'm in the fandom and so are some of my close friends so regretevator fandom iwc <br> 
+SOME selfshippers (sorry i don't really like interacting with yall from some bad expirences with selfshippers so you guys are on VERY thin ice.) <br>
+Other than that, I hide freely/frequently
 
 </details>
 
