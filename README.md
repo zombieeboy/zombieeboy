@@ -8,8 +8,10 @@ i looove my all time favourite keith
 · · ─ ·✶· ─ · ·
 <details>
 <summary>abt me !  </summary>
- Aries ꩜ HeHim ⋮ russian / australian 🕸️ i'm very embarassing to be around
-i can be very judging please lmk if you want me to keep my thoughts to myself..
+ Aries ꩜ HeHim 
+  russian / australian 🕸️ i'm very embarassing to be around
+
+  i can be very judging please lmk if you want me to keep my thoughts to myself..
 </details>
 
 
