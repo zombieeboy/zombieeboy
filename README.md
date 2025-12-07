@@ -18,11 +18,15 @@ i looove my all time favourite friend keith ^ω^ hi keith hi hello hi...
 
 <details>
 <summary>byi ! ⛧ </summary>
-My eSpelling isn't very good, sorry about that <br> 
-I make Kms jokes, as well as say slurs i CAN reclaim <br>
-I can, and will be annoying/embarassing to be around so let me know to tone it down and i'll stop. <br>
-I'm usually AFK, so please W2I! 
-i am a satanist, christians iwec because all of you are INSUFFERABLE.
+My Spelling isn't very good, sorry about that <br> 
+
+  -I make Kms jokes, as well as say slurs i CAN reclaim <br>
+
+  -I can, and will be annoying/embarassing to be around so let me know to tone it down and i'll stop. <br>
+
+  - I'm usually AFK, so please W2I! 
+
+  - i am a satanist, christians iwec because all of you are INSUFFERABLE.
 
 
 </details>
