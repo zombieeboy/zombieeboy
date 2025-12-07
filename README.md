@@ -1,6 +1,6 @@
 <div align="center">
 
-![Do not kill yourself](https://github.com/user-attachments/assets/9534d646-e783-433f-a317-b914fdc5847a)
+![Real](https://github.com/user-attachments/assets/c57c9fab-a02c-43d7-abe9-0fd199bab17f)
 
 ![6](https://files.catbox.moe/ue04jm.png)
 ![](https://komarev.com/ghpvc/?username=srupslurp&color=grey)
