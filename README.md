@@ -18,9 +18,9 @@ i looove my all time favourite keith
 
 <details>
 <summary>byi ! - ‸ - </summary>
-My english isn't very good, sorry about that <br> 
-I make Kms Kys jokes, as well as say slurs I can reclaim <br>
-I can, and will be annoying <br>
+my spelling is super bad, sorry about that <br> 
+I make Kms jokes, as well as say slurs I can reclaim  <br>
+I can, and will be annoying and embarassing <br
 I'm usually AFK, so please W2I! 
 
 
