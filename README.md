@@ -21,7 +21,7 @@ I'm usually AFK, so please W2I!
 <br> одна пшеничная марка — это ультра, братан, где все мои мууты за одну пшеничную марку !
 
 
-<br> [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31u3stiobril2k26hbegbae2ej6m&cover_image=true&theme=spotify-embed&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=53b14f&bar_color_cover=true&mode=light)](https://github.com/kittinan/spotify-github-profile)
+<br> [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31u3stiobril2k26hbegbae2ej6m&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=true&profanity=false&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
 
 
